@@ -1,4 +1,4 @@
-not the one to blame for tht pfp
+not the one to blame for the pfp
 
 
 
