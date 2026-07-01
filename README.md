@@ -6,3 +6,5 @@ $${\color{yellow}hi!!  \space im\space aff \space!!}$$
 
 <p align="center">
 https://pronouns.cc/@aff
+
+https://en.pronouns.page/@afff
